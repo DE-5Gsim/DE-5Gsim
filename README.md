@@ -44,7 +44,7 @@
 ✅ **德国 eSIM 秒接码**，信任度拉满。
 
 🎥 [点此查看注册教程实操视频][![Watch the video]
-(https://img.youtube.com/vi/3enjqtwfZPw/hqdefault.jpg)](https://www.youtube.com/watch?v=3enjqtwfZPw)
+[![Watch the video](https://img.youtube.com/vi/3enjqtwfZPw/hqdefault.jpg)](https://www.youtube.com/watch?v=3enjqtwfZPw)
 
 ---
 
